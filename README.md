@@ -4,8 +4,11 @@ Một ngày đặc biệt...
 
 
 Trời thì se se lạnh, mình thì ngồi một mình trước màn hình, lặng lẽ viết những dòng cảm xúc...
+
 Không hiểu sao đã ngần ấy năm rồi, dù tự hứa với bản thân như thế nào, nhưng mình vẫn không quên được cậu?
+
 Là do mình không có người cạnh bên, hay do mình chưa làm được gì cho cậu?
+
 Hay là lại ngồi ngẫm, lại hối hận, lại nhớ nhung?
 
 
